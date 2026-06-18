@@ -1,0 +1,2 @@
+# bankffin.kz
+Freedom Bank
